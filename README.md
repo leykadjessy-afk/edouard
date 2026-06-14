@@ -1,1 +1,1 @@
-# edouard
+# outsider trading academia
